@@ -6,3 +6,10 @@
 **E gosto de pizza(🍕).**
 
 - _E sou muito fã da Adele🎤_
+
+
+
+
+![](https://media.tenor.com/IWee61a5J-YAAAAC/waterfall-rainbow.gif)
+
+
